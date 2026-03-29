@@ -15,4 +15,4 @@
 
 
 ## 📫 Contact
-- LinkedIn:[linkedin.com/in/thirumalesh-r-88684b328]
+- LinkedIn:[https://www.linkedin.com/in/thirumalesh-r-88684b328]
